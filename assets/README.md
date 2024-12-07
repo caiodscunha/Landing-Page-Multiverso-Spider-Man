@@ -1,0 +1,1 @@
+Algumas imagens podem não estar disponíveis por limites do github
